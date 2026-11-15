@@ -31,7 +31,7 @@
 *⋅ ┈ ⋅ ˖˙꒰ა ໑ ♡ ౿ ໒꒱˙˖ ⋅ ┈ ⋅* 
 </p>
 
-<img width="99" height="56" alt="5fbf37db" src="https://github.com/user-attachments/assets/e1372627-e3f9-4af2-a08f-3a2176a60a1a" />
+
 <img width="99" height="56" alt="Arceus12" src="https://github.com/user-attachments/assets/cb5c2402-017e-4d50-b162-bd2f0c79e275" />
 <img width="99" height="56" alt="5fbf37db" src="https://github.com/user-attachments/assets/170d1ddf-43b7-4505-a8b2-0ea164b419ce" />
 <img width="99" height="56" alt="Cubchoo" src="https://github.com/user-attachments/assets/e871021a-6b36-46a1-8ed1-c2e4a784c452" />
