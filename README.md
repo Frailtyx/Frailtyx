@@ -17,12 +17,14 @@
 <p align="center">
 <ins> ata and other links coming soon !</ins>
 </p>
-<p align="center">
-*⋅ ┈ ⋅ ˖˙꒰ა ໑ ♡ ౿ ໒꒱˙˖ ⋅ ┈ ⋅* 
-</p>
-
 <div align="center">
  
 <details>
   <summary><small></summary>
   <p></p>
+  </details> 
+    
+<p align="center">
+*⋅ ┈ ⋅ ˖˙꒰ა ໑ ♡ ౿ ໒꒱˙˖ ⋅ ┈ ⋅* 
+</p>
+
