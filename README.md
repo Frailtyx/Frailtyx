@@ -20,3 +20,9 @@
 <p align="center">
 *⋅ ┈ ⋅ ˖˙꒰ა ໑ ♡ ౿ ໒꒱˙˖ ⋅ ┈ ⋅* 
 </p>
+
+<div align="center">
+ 
+<details>
+  <summary><small></summary>
+  <p></p>
