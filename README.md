@@ -24,7 +24,7 @@
   <p></p>
   <a href="https://github.com/Tainted-Canvas">@Tainted-Canvas</a> 
     <a href="https://github.com/tanmp3">@tanmp3</a>
-<a href="https://github com/swanchorus">@swanchorus</a>
+<a href="https://github.com/swanchorus">@swanchorus</a>
 <br> (⁠≧⁠▽⁠≦⁠)
   </details> 
     
