@@ -8,5 +8,10 @@
 <p align="center">
 *⋅ ┈ ⋅ ˖˙꒰ა ໑ ♡ ౿ ໒꒱˙˖ ⋅ ┈ ⋅* 
 </p>
-
-<img src="Untitled45_20261115193301.png" width="20" height="20" /> hi
+ 
+ <p align="center">
+ Please Don't copy my ponies ! if my pony style looks familiar let me know ! ^ _ ^
+</p>
+<p align="center">
+Giovanni Fans !
+</p>
