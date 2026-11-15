@@ -10,5 +10,6 @@
 </p>
  
 <p align="center">
-#GiovanniFan #HailGiovanni #TeamRocket!! <img src="Untitled45_20261115193301.png" width="20" height="20" />
+#GiovanniFan #HailGiovanni #TeamRocket!!　　   
+  old username : @TeamRocketCaramel <img src="Untitled45_20261115193301.png" width="20" height="20" />
 </p>
