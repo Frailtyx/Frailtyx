@@ -9,4 +9,4 @@
 *⋅ ┈ ⋅ ˖˙꒰ა ໑ ♡ ౿ ໒꒱˙˖ ⋅ ┈ ⋅* 
 </p>
 
-<img align="left" width="100" height="100" src="Untitled45_20261115193301.png/100/100"> hi
+<img src="Untitled45_20261115193301.png" width="20" height="20" /> hi
