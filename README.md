@@ -9,9 +9,6 @@
 *⋅ ┈ ⋅ ˖˙꒰ა ໑ ♡ ౿ ໒꒱˙˖ ⋅ ┈ ⋅* 
 </p>
  
- <p align="center">
- Please Don't copy my ponies!!. if my pony style looks familiar let me know ^ _ ^
-</p>
 <p align="center">
 #GiovanniFan #HailGiovanni #TeamRocket!! <img src="Untitled45_20261115193301.png" width="20" height="20" />
 </p>
