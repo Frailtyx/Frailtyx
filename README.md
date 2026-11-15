@@ -13,3 +13,10 @@
 #GiovanniFan #HailGiovanni #TeamRocket!! <br>
   old username : @TeamRocketCaramel <img src="Untitled45_20261115193301.png" width="20" height="20" />
 </p>
+
+<p align="center">
+<ins> ata and other links coming soon !</ins>
+</p>
+<p align="center">
+*⋅ ┈ ⋅ ˖˙꒰ა ໑ ♡ ౿ ໒꒱˙˖ ⋅ ┈ ⋅* 
+</p>
