@@ -15,7 +15,7 @@
 </p>
 
 <p align="center">
-<a href="https://frailtyx.atabook.org">Atabook</a> <img src="https://64.media.tumblr.com/f04b28026a8dc0902250c1920724f0c0/fcba11f9a273ec42-2e/s75x75_c1/68c4d8a4c159d6e97b9ccc7d363d0c69ba0b23ac.gifv" width="15" height="15" />
+<a href="https://frailtyx.atabook.org">I</a> <img src="https://64.media.tumblr.com/f04b28026a8dc0902250c1920724f0c0/fcba11f9a273ec42-2e/s75x75_c1/68c4d8a4c159d6e97b9ccc7d363d0c69ba0b23ac.gifv" width="15" height="15" />
 </p>
 <div align="center">
  
